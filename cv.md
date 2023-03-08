@@ -1,9 +1,9 @@
 ## LUBOV KVARTALNAYA 
 
-Telephone: +48698010746
-E-mail: lubov.kvartalnaya@gmail.com
-Telegram: @LiubouKvart
-RS School Discord nickname: Lubov(@Lubov-prog)
+##### Telephone: +48698010746
+##### E-mail: lubov.kvartalnaya@gmail.com
+##### Telegram: @LiubouKvart
+##### RS School Discord nickname: Lubov(@Lubov-prog)
 
 
 ### PERSONAL PROFILE
