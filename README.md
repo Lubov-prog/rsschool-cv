@@ -1,1 +1,1 @@
-https://Lubov-prog.github.io/rsschool-cv/cv
+https://Lubov-prog.github.io/rsschool-cv/
